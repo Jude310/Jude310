@@ -1,4 +1,4 @@
-# Jude
+# Introduction - Jude
 
 Hello, I'm Angel Jude Diones, a student of West Visayas State University.
 
